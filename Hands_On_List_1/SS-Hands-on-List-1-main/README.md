@@ -1,1 +1,0 @@
-# SS-Hands-on-List-1
